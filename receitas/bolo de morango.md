@@ -1,4 +1,6 @@
 # Receita de Bolo de Morango com Cobertura Cremosa
+<img width="1500" height="1000" alt="image" src="https://github.com/user-attachments/assets/8fe35d4e-3803-4ab4-bd59-614a4dccbb6c" />
+
 
 Uma receita deliciosa, fofinha e fácil de preparar, perfeita para o café da tarde ou para uma ocasião especial!
 
